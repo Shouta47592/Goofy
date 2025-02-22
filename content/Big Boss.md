@@ -1,4 +1,3 @@
-*As an observer I must take detailed notes, if you ask I may just be inclined to share them with you*
 
 Age: ??? (obviously older than a normal human can get, why is that?)
 
