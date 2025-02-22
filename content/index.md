@@ -1,6 +1,4 @@
 ---
-title: Welcome to Quartz
+title: Bart's Notes
 ---
-
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+Where does Bart keep his notes? Nobody knows! All that matters is that he's willing to share them with you in a neat, organized, and easily accessible manner. Make sure to thank him
