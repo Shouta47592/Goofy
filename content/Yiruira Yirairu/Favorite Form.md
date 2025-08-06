@@ -1,4 +1,4 @@
-Bart's Anecdote: *Considering she has a penchant for changing shapes I'll separate her entry into the different forms I've seen. This one is her self admitted favorite because "lightning is cool" and "I like going fast."*
+Bart's Anecdote: *Considering she has a penchant for changing shapes I'll separate her entry and catalogue the different forms I've seen. This one is her self admitted favorite because "lightning is cool" and "I like going fast."*
 
 Age: ??? (She apparently stopped counting exact numbers some odd 4000 years ago)
 
