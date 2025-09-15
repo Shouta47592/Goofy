@@ -1,4 +1,4 @@
-Bart's Anecdote: *Rumors about this man are hard to come across, but of the few I have there's one I find quite comical. He's apparently terrible at managing finances! Supposedly he also laments the loss of a friend from 400 or so odd years ago who was excellent with money.*
+Bart's Anecdote: *Rumors about this man are hard to come across, but of the few I have there's one I find quite comical. He's apparently terrible at managing finances! Supposedly it's due to the loss of his financial advisor some time ago.*
 
 Age: ??? (obviously older than a normal human can get, why is that?)
 
